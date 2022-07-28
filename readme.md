@@ -13,4 +13,4 @@ Talk to me about
 ## 📫 Contact Me
 - LinkedIn - [Harsh Rai](https://www.linkedin.com/in/harsh-rai-532a601a0/)
 - InstaGram - [@harsh_rai._](https://www.instagram.com/harsh_rai._/)
-
+- Email -  ramharshrai1999@gmail.com
